@@ -1,1 +1,0 @@
-# parsakhazravi.com
